@@ -1,4 +1,4 @@
-# Nikkko
+# Nickko
 - 📘 Estudante do SENAI
 - 🌈 Any Pronouns
 - MALULU, EU SOU A MAIS MAIS😎
